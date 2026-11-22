@@ -1,4 +1,5 @@
 # Agropecuaria-Producci-n-Agr-cola-y-Conservaci-n-de-Suelos-
+ARTÍCULO DE INVESTIGACIÓN SOBRE LA CREATIVIDAD
 Investigación sobre agricultura sostenible y prácticas básicas para el cuidado del suelo.
 Estudiante: Arianis Palacio
 
